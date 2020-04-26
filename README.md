@@ -1,3 +1,6 @@
 # test
 
-Lần đầu làm git nhóm
+Lần đầu làm git 
+quần què
+aloalo
+solo yasuo
